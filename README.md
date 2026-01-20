@@ -65,7 +65,7 @@ I am a highly energetic and results-driven individual committed to giving 100% e
 
 ## 📫 Contact Me
 
-- Email: [daharwalas@rknec.edu](mailto:daharwalas@rknec.edu)
+- Email: [adityaprowork@gmail.com](mailto:adityaprowork@gmail.com)
 - LinkedIn: [aditya-daharwal](https://www.linkedin.com/in/aditya-daharwal-08617026a/) 
 - GitHub: [adityadaharwal963](https://github.com/adityadaharwal963)
 
